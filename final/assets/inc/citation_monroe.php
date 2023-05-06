@@ -1,0 +1,1 @@
+<p>Monroe County, New York. (2023, January 29). In Wikipedia. Retrieved February 26, 2023, from https://en.wikipedia.org/wiki/Monroe_County,_New_York.</p>
